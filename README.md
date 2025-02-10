@@ -28,6 +28,7 @@ A bientôt 🥳
 ## Contributeurs
 
 - Moi et moi seul pour l'instant 🤓
+- Moi avec moi même une nouvelle fois
 
 
 © < Mon entreprise > Unamur, 2024
